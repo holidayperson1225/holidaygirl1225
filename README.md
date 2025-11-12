@@ -16,6 +16,7 @@
 
                                              (_　_)。゜zｚＺ Yumeshipper + fictionkin
 
-   <img width="736" height="414" alt="29 Sem Título_20251111221225" src="https://github.com/user-attachments/assets/9a8abe84-cf8f-464f-86d4-50868dee1010" />
+   <img width="1054" height="561" alt="31 Sem Título_20251111223534" src="https://github.com/user-attachments/assets/bded2fd5-f984-40b3-847b-809af168ab5e" />
+
 
                                               utdr & OMORI hyperfixed !! ヾ(•ω•`)o
