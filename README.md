@@ -3,7 +3,7 @@
 
 
 
-                                                      Allen       ◞       Noelle (❁´◡`❁)
+                                                    Allen       ◞       Noelle (❁´◡`❁)
 
                                                   
-                                                     🐾  enby        .       he /they  ♪
+                                                   🐾  enby        .       he /they  ♪
