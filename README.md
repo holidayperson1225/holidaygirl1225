@@ -20,3 +20,11 @@
 
 
                                               utdr & OMORI hyperfixed !! ヾ(•ω•`)o
+
+
+
+
+
+
+
+<img width="2048" height="531" alt="tumblr_eca199d8b23b4baf5e5676ea2d902be9_1a70e32f_2048" src="https://github.com/user-attachments/assets/5b4485c4-48d4-4918-82a1-b93d71dde705" />
