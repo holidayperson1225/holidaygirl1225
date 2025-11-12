@@ -14,3 +14,4 @@
 <img width="1054" height="561" alt="31 Sem Título_20251111221501" src="https://github.com/user-attachments/assets/0dcfe9de-23ac-4a74-a055-4fdb54ed79e8" />
 
 
+                                             (_　_)。゜zｚＺ Yumeshipper + fictionkin
