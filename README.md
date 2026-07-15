@@ -19,7 +19,7 @@
    <img width="1054" height="561" alt="31 Sem Título_20251111223534" src="https://github.com/user-attachments/assets/bded2fd5-f984-40b3-847b-809af168ab5e" />
 
 
-                                              utdr & OMORI hyperfixed !! ヾ(•ω•`)o
+                                              utdr & Ace Attorney hyperfixed !! ヾ(•ω•`)o
 
 
 
